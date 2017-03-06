@@ -1,8 +1,10 @@
-<P align = "center"> Heaven Gebregiorgis  
-1105 E Fir St. Unit:417, Seattle, WA   
-Email: heaventewie@gmail.com   
-Cell:   206-739-4854</P>  
-                                                                                                                          _________________________________________________________________________________									
+<P align = "center"> Heaven Gebregiorgis<br>  
+1105 E Fir St. Unit:417, Seattle, WA<br> 
+Email: heaventewie@gmail.com<br>  
+Cell:   206-739-4854</P> 
+
+---
+                                                                                                                         									
 
 ####**SKILLS PROFILE**
 
