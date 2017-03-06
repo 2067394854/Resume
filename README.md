@@ -1,7 +1,7 @@
-<center>Heaven Gebregiorgis  
+<P align = "center"> Heaven Gebregiorgis  
 1105 E Fir St. Unit:417, Seattle, WA   
 Email: heaventewie@gmail.com   
-Cell:   206-739-4854</center>  
+Cell:   206-739-4854</P>  
                                                                                                                           _________________________________________________________________________________									
 
 ####**SKILLS PROFILE**
